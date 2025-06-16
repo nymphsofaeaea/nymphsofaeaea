@@ -6,4 +6,4 @@
 c + h is usually welcomed, but when we're with friends we prefer to be left alone
 we are offtabbed most of the time, whisper to get our attention <3
 
-<p align=center> <h ref=https://holypuppeteer.carrd.co/#> syshost carrd </h> <h ref=https://compassionatefighter.straw.page> co-host strawpage </h> </p>
+<p align=center> | <a href="https://holypuppeteer.carrd.co/#">syshost carrd</a> | <a href="https://compassionatefighter.straw.page">co-host strawpage</a> | </p>
