@@ -1,9 +1,2 @@
-<p align=center><img src="https://i.postimg.cc/cLFg81vM/Untitled198-20250615231019.png"></p>
-<p align=center> <b>WE WILL BLOCK ANYONE WHO MAKE PANCAKE JOKES DIRECTED TOWARDS US OR OUR FRIEND'S POLITES PONIES, our syshost gets extremely annoyed by the jokes</b></p>  
-<p align=center><img src="https://64.media.tumblr.com/aaac11f1e16ab08c326b3a379a1cb068/c6ec0caf4b0dd378-22/s400x600/de1e8a470e49673b13d5cd1097885ba0c13a19be.gifv"></p>
-
-
-c + h is usually welcomed, but when we're with friends we prefer to be left alone
-we are offtabbed most of the time, whisper to get our attention <3
-
-<p align=center> | <a href="https://holypuppeteer.carrd.co/#">syshost carrd</a> | <a href="https://compassionatefighter.straw.page">co-host strawpage</a> | </p>
+<p align=center><img src="[https://i.postimg.cc/cLFg81vM/Untitled198-20250615231019.png](https://i.postimg.cc/qRHG9Wz0/Untitled247-20251119152951.png)"></p>
+<p align=center> <b>dni if you have been blocked by us and have not been unblocked, we block you for a reason </b></p>
